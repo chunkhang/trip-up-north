@@ -67,18 +67,14 @@
 ### 6.00 pm
 
 - Dinner at George Town
-  - [Kebaya Dining Room](https://goo.gl/maps/HaHb8UYnqrRyZiB79)
+  - [Chulia Street Night Hawker Stalls](https://goo.gl/maps/dVMip9kK8msMpYeu9)
   - [Hameediyah Restaurant](https://g.page/OLDESTNASIKANDARINMALAYSIA?share)
   - [New World Park Food City](https://goo.gl/maps/DVJVBBvQpcvNZv6QA)
-- Dinner with street food + bar
+- Bar in [Love Lane](https://goo.gl/maps/EPViyCkdnX9bMfgX7)
 
 ### 8.30 pm
 
 - Back to Woodsbury Homestay
-
-- Night activities at George Town
-  - Bars in [Love Lane](https://goo.gl/maps/EPViyCkdnX9bMfgX7)
-  - [Chulia Street Night Hawker Stalls](https://goo.gl/maps/dVMip9kK8msMpYeu9)
 
 ### 11.30 pm
 
