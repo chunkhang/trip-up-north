@@ -123,9 +123,11 @@
 
 ### 6.00 pm
 
-- Arrive at Kuala Sepetang
-- Dinner at Kuala Sepetang
+- Arrive at Matang
+- Dinner at Matang
   - Seafood
+    - Lemon Tree
+    - Ah Hua
 
 ### 7.30 pm
 
