@@ -139,8 +139,9 @@
 ### 10.00 pm
 
 - Night activities in Taiping
-  - Bars
   - Karaoke
+    - [My Melody Family KTV](https://goo.gl/maps/XZysrBtSRczJGVudA)
+    - [Muse](https://g.page/muse-family-ktv?share)
 
 ### 12.00 am
 
