@@ -71,6 +71,9 @@
   - [Hameediyah Restaurant](https://g.page/OLDESTNASIKANDARINMALAYSIA?share)
   - [New World Park Food City](https://goo.gl/maps/DVJVBBvQpcvNZv6QA)
 - Bar in [Love Lane](https://goo.gl/maps/EPViyCkdnX9bMfgX7)
+  - [Kashmir bar and bistro](https://goo.gl/maps/qgmt4FPigCXToc9E6)
+  - [Holy Guacamole - Love Lane](https://g.page/holyguac-penang?share)
+  - [The Loft - Love Lane](https://g.page/theloft-penang?share)
 
 ### 8.30 pm
 
