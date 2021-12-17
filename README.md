@@ -44,9 +44,7 @@
 
 ### 2.00 pm
 
-- Lunch at Butterworth
-  - [Khunthai Restaurant](https://goo.gl/maps/Vp9cPmA1sihyxWUA6)
-  - [Ong Cheng Huat Seafood](https://goo.gl/maps/xLG5JU7mQibn4tg19)
+- Lunch at Butterworth [Ong Cheng Huat Seafood](https://goo.gl/maps/xLG5JU7mQibn4tg19)
 
 ### 3.00 pm
 
@@ -59,24 +57,28 @@
 ### 4.30 pm
 
 - Arrive at George Town
-- Explore [Weld Quay](https://goo.gl/maps/bC2guU9puaxDq7DA6)
+- Day activities at [Weld Quay](https://goo.gl/maps/bC2guU9puaxDq7DA6)
   - Clan jetties
   - Art museums
-  - Love Lane
+  - [Kapitan Keling Mosque](https://goo.gl/maps/Er8aJK44Nhd92ruB7)
+  - [Pinang Peranakan Mansion](https://goo.gl/maps/xMoyzw5ewfCtexxH6)
+  - [Corgi & The Gang Pet Cafe](https://g.page/corgiandthegang?share)
 
 ### 6.00 pm
 
-- Coffee at [Corgi & The Gang Pet Cafe](https://g.page/corgiandthegang?share)
-
-### 7.00 pm
-
 - Dinner at George Town
+  - [Kebaya Dining Room](https://goo.gl/maps/HaHb8UYnqrRyZiB79)
   - [Hameediyah Restaurant](https://g.page/OLDESTNASIKANDARINMALAYSIA?share)
   - [New World Park Food City](https://goo.gl/maps/DVJVBBvQpcvNZv6QA)
+- Dinner with street food + bar
 
-### 9.30 pm
+### 8.30 pm
 
 - Back to Woodsbury Homestay
+
+- Night activities at George Town
+  - Bars in [Love Lane](https://goo.gl/maps/EPViyCkdnX9bMfgX7)
+  - [Chulia Street Night Hawker Stalls](https://goo.gl/maps/dVMip9kK8msMpYeu9)
 
 ### 11.30 pm
 
@@ -84,22 +86,27 @@
 
 ## Day 2 - Sunday
 
-### 9.00 am
+### 8.30 am
 
 - Check out from Woodsbury Homestay
 
-### 10.00 am
+### 9.00 am
 
 - Hello Jay
-- Brunch at [Restoran Chaw Choon Dim Sum](https://goo.gl/maps/VcyUyYnNBdgbCo9z6)
+- Breakfast at [Raja Uda](https://goo.gl/maps/yMpqbVigwQAiqxHx7)
+- Visit [Temple of Nine Emperor](https://goo.gl/maps/s2TRhLJDQJgEC1ri7)
 
-### 11.30 am
+### 10.30 am
 
 - Chill at Jay's house
 
-### 1.30 pm
+### 12.00 pm
 
-- Goodbye Jay
+- Lunch at [Restoran Chaw Choon Dim Sum](https://goo.gl/maps/VcyUyYnNBdgbCo9z6)
+
+### 1.00 pm
+
+- Drop Jay
 - Depart for **Taiping**
 
 ### 2.30 pm
@@ -111,17 +118,30 @@
 
 - Check in to [Hup Seng Homestay](https://goo.gl/maps/VUJvNorGSyqLfaWK7)
 
+### 5.30 pm
+
+- Depart for **Kuala Sepetang**
+
 ### 6.00 pm
 
-- Dinner at XXX
+- Arrive at Kuala Sepetang
+- Dinner at Kuala Sepetang
+  - Seafood
+
+### 7.30 pm
+
+- Depart for **Taiping**
 
 ### 8.00 pm
 
+- Arrive at Taiping
 - Night safari at [Taiping Zoo](https://goo.gl/maps/oMhd4tajqFZGvnbF6)
 
-### 10.30 pm
+### 10.00 pm
 
-- Bar at XXX
+- Night activities in Taiping
+  - Bars
+  - Karaoke
 
 ### 12.00 am
 
@@ -139,38 +159,37 @@
 
 ### 10.00 am
 
-- Visit [Taiping Lake Gardens](https://goo.gl/maps/SEKL1zy7wFW7PCA26)
-
-### 11.00 am
-
-- Visit [Antong Coffee](https://g.page/Antongcafe?share)
+- Day activities at Taiping
+  - [Taiping Lake Gardens](https://goo.gl/maps/SEKL1zy7wFW7PCA26)
+  - [Ride & Cruise Taiping, Boat Ride](https://goo.gl/maps/qppjwLUm2SbJbFix8)
+  - [Perak Museum](https://goo.gl/maps/wWNtDCw2SQzqfZpNA)
 
 ### 11.30 am
 
-- Depart for **Kuala Sepetang**
+- Shop at Taiping
+  - [Antong Coffee](https://g.page/Antongcafe?share)
+  - Biscuits
 
 ### 12.00 pm
 
-- Arrive at Kuala Sepetang
-- Visit [Charcoal Factory Kuala Sepetang](https://goo.gl/maps/RqnxqCcPaMR1bynv8)
-
-### 1.00 pm
-
-- Lunch at [Ah Thai](https://goo.gl/maps/zctJptZY4YDEYRds7)
-
-### 2.00 pm
-
-- Back to **Simpang**
 - Drop Johnson
 - Depart for **KL Sentral**
 
-### 5.30 pm
+### 2.00 pm
+
+- Lunch at [R&R Tapah Southbound](https://goo.gl/maps/w5hHsvREcvJLrPn68)
+
+### 3.00 pm
+
+- Continue drive
+
+### 5.00 pm
 
 - Arrive at KL Sentral
 - Drop Kenneth
 - Depart for **USJ**
 
-### 6.00 pm
+### 5.30 pm
 
 - Arrive at USJ
 - Drop USJ gang
